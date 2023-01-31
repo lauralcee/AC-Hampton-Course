@@ -1,1 +1,3 @@
-# AC-Hampton-Course
+# AC Hampton Course
+AC Hampton was in debt when he quit his 9-5 job and only had $1,800 in his bank account. After spending his last few dollars buying a dropshipping course and working endlessly, he earned millions of dollars selling products online. Today, he is an 8-figure seller on Shopify and course creator of one of the most popular dropshipping courses.
+Alex Hampton went on a serious turn in 2022. He is credited with a multi-million dollar fortune, but he only recently reached the level of $ 1 million. On his website [go here to find out there](https://wifihustlin.com/ac-hampton/) is information about trading worth more than $12 million, but this is not his net worth, but the success of his wards.
